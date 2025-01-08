@@ -14,3 +14,4 @@ Utilizei o "ChatGPT" para revisar minha pesquisa sobre Psicologia e Tecnologia, 
 
 ## 🚀 Resultados
 O e-book apresenta um conteúdo envolvente e visualmente rico, demonstrando como conhecimentos distindos se complementam.
+[LINK PARA O E-BOOK AQUI](https://docs.google.com/document/d/1-YDixpJJkO3Gny6nR2ijpHmbxN3aLhjQY1TcP6nACzI/edit?usp=sharing)
